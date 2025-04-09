@@ -12,7 +12,7 @@
 <p>This silence makes ED worse - emotionally and physically. But what if the solution was as simple as taking a scientifically designed supplement that works with your body, not against it?</p>
 
 <h2>The Hidden Secret to Rock-Hard Confidence → <a href="https://getnitricboost.com/?affiliate=tuharskyaf&tid=TID" target="_blank">Nitric Boost</a></h2>
-<p><strong>✅ Nitric Boost</strong> is a breakthrough supplement formulated to improve blood flow using safe, natural ingredients — and it’s available <em>without a prescription</em>.</p>
+<p><strong>✅ Nitric Boost</strong> is a breakthrough supplement formulated to improve blood flow using safe, natural ingredients - and it’s available <em>without a prescription</em>.</p>
 
 <p>Unlike synthetic pills, Nitric Boost supports the root cause of ED: poor circulation and low nitric oxide levels. That’s right - it’s not just about testosterone, it’s about oxygen and flow.</p>
 
