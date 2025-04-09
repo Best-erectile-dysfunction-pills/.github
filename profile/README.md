@@ -3,7 +3,8 @@
 <p><strong>Struggling with erectile dysfunction (ED)? You're not alone.</strong> Millions of men experience the quiet shame of not being able to perform — but that doesn’t mean you have to suffer in silence or rely on expensive prescriptions with risky side effects.</p>
 
 <!-- IMAGE PLACEHOLDER: Hero image of man looking relieved/confident -->
-<p><img src="path-to-your-image.jpg" alt="Confident man after overcoming ED" /></p>
+![image](https://github.com/user-attachments/assets/8f85948e-af5b-4bcd-b1e6-4ba43a15af8c)
+
 
 <h2>The Hidden Pain of ED: It’s Not Just Physical</h2>
 <p>ED isn’t just about what happens in the bedroom. It seeps into your confidence, your relationships, and your identity as a man. Every failure chips away at your self-esteem, and most men never talk about it out loud.</p>
