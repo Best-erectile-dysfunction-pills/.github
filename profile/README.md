@@ -11,7 +11,7 @@
 
 <p>This silence makes ED worse - emotionally and physically. But what if the solution was as simple as taking a scientifically designed supplement that works with your body, not against it?</p>
 
-<h2>What they don't want you to know -> <a href="https://getnitricboost.com/?affiliate=tuharskyaf&tid=TID" target="_blank">Nitric Boost</a></h2>
+<h2>The Hidden Secret to Rock-Hard Confidence → <a href="https://getnitricboost.com/?affiliate=tuharskyaf&tid=TID" target="_blank">Nitric Boost</a></h2>
 <p><strong>✅ Nitric Boost</strong> is a breakthrough supplement formulated to improve blood flow using safe, natural ingredients — and it’s available <em>without a prescription</em>.</p>
 
 <p>Unlike synthetic pills, Nitric Boost supports the root cause of ED: poor circulation and low nitric oxide levels. That’s right - it’s not just about testosterone, it’s about oxygen and flow.</p>
@@ -22,6 +22,8 @@
 
 <h2>Why Most ED Pills Fail (And Nitric Boost Doesn’t)</h2>
 <p>Most over the counter erectile dysfunction pills just numb the problem. They spike blood flow temporarily, but they don’t fix anything long-term. That’s why the problem keeps coming back.</p>
+
+<p>Prescription medications for ED, such as Viagra and Cialis, are effective but require a doctor's visit and can be expensive. </p>
 
 <p>Nitric Boost works differently - it uses L-Arginine and Beet Root to <em>naturally restore nitric oxide levels</em>, improving circulation over time. You’re not just treating symptoms. You’re solving the problem at the source.</p>
 
