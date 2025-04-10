@@ -1,4 +1,4 @@
-<h1>Best Over the Counter Erectile Dysfunction Pills That Actually Work</h1>
+<h1>Best Erectile Dysfunction Pills</h1>
 
 <p><strong>Struggling with erectile dysfunction (ED)? You're not alone.</strong> Millions of men experience the quiet shame of not being able to perform, but that doesn’t mean you have to suffer in silence or rely on expensive prescriptions with risky side effects.</p>
 
